@@ -8,7 +8,7 @@ Welcome to my **Spotify-themed CV**! I'm a dynamic communicator and business dev
 - Multilingual skills: **English**, **French**, **Spanish**, **Wolof**.
 
 ##  View My CV:
-Spotify_Themed_CV_Hadja_Coulibaly.pdf.pdf
+[Spotify_Themed_CV_Hadja_Coulibaly.pdf.pdf](https://hadja-ramatoulaye-sow-coulibaly.my.canva.site/)
 
 ##  Favorite Spotify Playlists:
 - **Discover Weekly** – Always finding new tunes to inspire creativity.
